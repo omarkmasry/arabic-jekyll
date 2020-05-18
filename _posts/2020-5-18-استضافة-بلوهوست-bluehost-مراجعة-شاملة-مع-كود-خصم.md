@@ -10,4 +10,4 @@
 
 
 
-[cloudways link here](https://dekkah.com/offer/cloudways)
+[انتقل الى موقع بلوهوست](https://dekkah.com/offer/bluehost)
